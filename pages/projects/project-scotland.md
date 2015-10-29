@@ -31,17 +31,17 @@ Software purchase and development of software use/ integration
 
 Run LinkedIn workshop in Dumfries - trial new technology in live workshop situation with volunteers
 
-### Phase 3 April - September 2015
+### Phase 3 October 2015
 
-Run LinkedIn workshops in Glasgow, Edinburgh and Aberdeen or Dundee (tbc) 
+LinkedIn workshops in Dundee 
 
-### Phase 4 October & November 2015
+### Phase 4 October & November 2015 (tbc)
 
 Run second LinkedIn workshops in Glasgow & Edinburgh
 
 ### Phase 5 January - March 2016 
 
-Review of LinkedIn Workshops - potential creation of permanent online resource to be accessed by all ProjectScotland volunteers.
+Review of LinkedIn Workshops - creation of permanent online resource to be accessed by all ProjectScotland volunteers.
 
 
 ## Evaluation
